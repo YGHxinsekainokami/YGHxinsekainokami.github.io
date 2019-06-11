@@ -1,0 +1,1 @@
+# YGHxinsekainokami.github.io
